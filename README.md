@@ -4,7 +4,7 @@
 
 💬 Estoy interesado en aprender y compartir conocimientos sobre tecnología y programación con todos.
 
-📫 Puedes contactarme a través de mi correo electrónico: [tuemail@example.com](mailto:tuemail@example.com) o seguirme en Twitter: [@guerreroxp](https://twitter.com/guerreroxp.
+📫 Puedes contactarme a través de mi correo electrónico: [guerreroxp@gmail.com](mailto:guerreroxp@gmail.com) o seguirme en Twitter: @guerreroxp https://twitter.com/guerreroxp.
 
 😄 ¡Mis pronombres son él/him!
 
