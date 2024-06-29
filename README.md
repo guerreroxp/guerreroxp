@@ -4,11 +4,11 @@
 
 💬 Estoy interesado en aprender y compartir conocimientos sobre tecnología y programación con todos.
 
-📫 Puedes contactarme a través de mi correo electrónico: [guerreroxp@gmail.com](mailto:guerreroxp@gmail.com) o seguirme en Twitter: @guerreroxp https://twitter.com/guerreroxp.
+📫 Puedes contactarme a través de mi correo electrónico: [guerreroxp@gmail.com](mailto:guerreroxp@gmail.com) o seguirme en X, Instagram o Facebook: @guerreroxp .
 
 😄 ¡Mis pronombres son él/him!
 
-⚡ Dato curioso: ¡Me encanta resolver acertijos y puzzles en mi tiempo libre!
+⚡ Dato curioso: ¡Fan de Zelda!
 
 <!---
 guerreroxp/guerreroxp es un repositorio ✨ especial ✨ porque su `README.md` (este archivo) aparece en tu perfil de GitHub.
